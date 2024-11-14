@@ -1,2 +1,2 @@
 # gestionagile
-Mouad dikouk 2eme annee - Groupe B
+Mouad Dikouk- 2 eme annee - Groupe B
